@@ -1,2 +1,2 @@
 # Abhishek-Singh
- Abhishek is a student    he belongs to SC Community of bihar also known as bihari people so that why people call him abhishek bihari
+ Abhishek is a student.He belongs to SC Community of Bihar also known as Bihari people so that why people call him Abhishek Bihari.
